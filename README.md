@@ -36,149 +36,167 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Fyrſt the prologue how Iohan golde• in the xvj yere of kyng rychard the ſecond be••n to make thys boHere begynneth the book •And fyrſt the auctor nameth thys book confeſſio amantis / that is to ſay thAnd here foloweth the ſecond bookHere the confeſſor •e••th of the ſynne of enuye / and of his ſpytesAnd here begynneth the thyrd bookHow the •onfeſſor treteth of the ſynne of yre / and of hys fyue ſpyAnd here begynneth the fourth bookHere the confeſſor ſpeketh of the ſyune of ſlouthe and of hys ſpycHere begynneth the fyfthe bookHere entendeth the confeſſor to trede of coue•yſe and aueryce which isAnd bere begynneth the ſyxthe bookHere the confeſſor tr•teth of the ſynne of •l•tonye / and telleth And here begynneth the ſeuenth bookIn thys vij book thauctor entendeth to telle the doctryne of aryſHere begynneth the viii & laſt bookHere telleth the confeſſor of them that in loues cauſe do on agey
+Fyrſt the prologue how Iohan golde• in the xvj yere of kyng rychard the ſecond be••n to make thys boFyrſt the prologue how Iohan golde• in the xvj yere of kyng rychard the ſecond be••n to make thys boHere begynneth the book •And fyrſt the auctor nameth thys book confeſſio amantis / that is to ſay thAnd here foloweth the ſecond bookHere the confeſſor •e••th of the ſynne of enuye / and of his ſpytesAnd here begynneth the thyrd bookHow the •onfeſſor treteth of the ſynne of yre / and of hys fyue ſpyAnd here begynneth the fourth bookHere the confeſſor ſpeketh of the ſyune of ſlouthe and of hys ſpycHere begynneth the fyfthe bookHere entendeth the confeſſor to trede of coue•yſe and aueryce which isAnd bere begynneth the ſyxthe bookHere the confeſſor tr•teth of the ſynne of •l•tonye / and telleth And here begynneth the ſeuenth bookIn thys vij book thauctor entendeth to telle the doctryne of aryſHere begynneth the viii & laſt bookHere telleth the confeſſor of them that in loues cauſe do on agey
 #####Body#####
 
-1. De pectore argenteo
+1. Prologue
 
-1. De bentre eneo
+    _ De pectore argenteo
 
-1. De tibeis ferreis
+    _ De bentre eneo
 
-1. Confeſſor
+    _ De tibeis ferreis
 
-1. Confeſſor
+1. Incipit liber primus
 
-1. Amans
+    _ Confeſſor
 
-1. Opponit Confeſſor
+    _ Confeſſor
 
-1. — Confeſſor
+    _ Amans
 
-1. Amans
+    _ Opponit Confeſſor
 
-1. Amans
+    _ — Confeſſor
 
-1. Confeſſor
+    _ Amans
 
-1. Confeſſor
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Confeſſor
 
-1. Confeſſor opponit
+    _ Confeſſor
 
-1. Confeſſor
+    _ Amans
 
-1. Amans
+    _ Confeſſor opponit
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Confeſſor
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+1. Liter ſecundus
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Coufeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+    _ Coufeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+1. Incipit liber Tercius
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Amans
+    _ Confeſſor
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Amans
 
-1. Confeſſor
+1. Incipit liber quartus
 
-1. Confeſſor
+    _ Amans
 
-1. Confeſſor
+    _ Confeſſor
 
-1. Amans
+    _ Confeſſor
 
-1. Confeſſor
+    _ Amans
 
-1. Amans
+    _ Confeſſor
 
-1. Confeſſor
+    _ Confeſſor
 
-1. De ſecta Grecorum
+    _ Confeſſor
 
-1. Iupiter •eus deliciarum
+    _ Amans
 
-1. Mars deus belli
+    _ Confeſſor
 
-1. Confeſſor
+1. Incipit Liber Quintus
 
-1. Confeſſor
+    _ Amans
 
-1. Amans
+    _ Confeſſor
 
-1. Amans
+    _ De ſecta Grecorum
 
-1. De prima aeris periferia
+    _ Iupiter •eus deliciarum
 
-1. De ſecunda aeris periferia
+    _ Mars deus belli
 
-1. De tercia aeris periferia
+    _ Confeſſor
 
-1. De complexione Fleumatis
+    _ Confeſſor
 
-1. De complexione ſanguinis
+    _ Amans
 
-1. Fel domus colere
+1. Incipit •iter Sextus
 
+    _ Amans
+
+1. Incipit liber Septimus
+
+    _ De prima aeris periferia
+
+    _ De ſecunda aeris periferia
+
+    _ De tercia aeris periferia
+
+    _ De complexione Fleumatis
+
+    _ De complexione ſanguinis
+
+    _ Fel domus colere
+
+1. Incipit Liber octau••
+Explicit iſte liber qui tranſeat obſecro liber / Ut ſine liuore vigeat lectoris in ore / Qui ſedet iEnprynted at weſtmeſtre by me Willyam Caxton and fynyſſhed the ij day of Septembre the fyrſt yere of
 **Types of content**
 
   * There are 33684 **verse** lines!
